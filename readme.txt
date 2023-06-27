@@ -1,0 +1,1 @@
+left off at https://www.youtube.com/watch?v=ugCN_gynFYw 27.56
